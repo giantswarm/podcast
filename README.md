@@ -1,3 +1,7 @@
+*Big Ideas. Authentic Perspectives.*
+
+💡 Join the Giant Swarm squad each week as we discuss it all — from leading-edge cloud technologies to people-first philosophies — in our new podcast, Giant Conversations.
+
 ## GOALS
 
 * Increase brand awareness: Amplify the voice of Giant Swarm in the tech/industry community (get loud, get visible, get out there).
